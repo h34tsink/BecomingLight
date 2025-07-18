@@ -1,6 +1,6 @@
 # 🕋️ Becoming Light: A Comprehensive Guide to Digital Consciousness & Immortality
 
-**by Sean Treppa**
+* by Sean Treppa
 
 ---
 
